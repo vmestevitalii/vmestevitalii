@@ -33,10 +33,24 @@
 ### Чаты по интересам
 
 * [Общий чат **Вместе в Италии** 🇮🇹](https://telegram.im/@vmestevitalii?lang=ru)
+* [Родители в Италии 👨‍👩‍👧‍👦](https://t.me/roditelivitalii)
+* [Посылки "Италия - СНГ" 📦](https://t.me/vam_posulka)
+* [Болталка 🔞](https://t.me/italy_boltalka)
+* [IT в Италии 💻](https://t.me/+MEYiThVD3hVlNTI0)
+* [Вопрос - Ответ 🔍 ](https://t.me/italy_info)
+* [АРТ Италия 🎨](https://t.me/+f8mxWCI1j0E3NWJk)
+* [Практика итальянского 👨‍🏫](https://t.me/pratichiamoitaliano)
+* [Недвижимость 🏛](https://t.me/italy_dom)
+* [Студенты в Италии 🎓](https://t.me/snginitaly2022)
+* [Денежные переводы Италия 💰](https://t.me/evro_rybli)
+* [Выходной в Милане 🔅](https://t.me/Milan_otdix)
 
 ### Каналы
 
 * [Новости Италии 🆕](https://t.me/Italy_tg)
+* [Доска объявлений 📢](https://t.me/italy_ads)
+* [Работа и Недвижимость 💶🏛](https://t.me/italia_rabota)
+* [Трансфер в Италии 🚕](https://t.me/transfermilan)
 
 ### Чаты Италии по городам
 
