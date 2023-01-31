@@ -41,4 +41,17 @@
 ### Чаты Италии по городам
 
 * [Бари](https://t.me/Bari_4at)
-
+* [Болонья](https://t.me/bologna_4at)
+* [Венеция](https://t.me/+rJQuCxaEx71jOTE6)
+* [Вентимилья](https://t.me/+gNjTtGrY7T9kM2Y6)
+* [Верона](https://t.me/+QQp4erzL7J0yNzZi)
+* [Генуя](https://t.me/+hNIQhASbvE01MjMy)
+* [Милан](https://t.me/Milan_4at)
+* [Неаполь](https://t.me/napoli_4at)
+* [Рим](https://t.me/Rim_4at)
+* [Римини](https://t.me/+rkCBnfXopntmNGYy)
+* [Сан-Ремо](https://t.me/Sanremo_4at)
+* [Сардиния](https://t.me/+PI3-FRrDl9U2MDBk)
+* [Сицилия](https://t.me/Sicilia_4at)
+* [Турин](https://t.me/+bpgaL8LcbY8xMWZi)
+* [Флоренция](https://t.me/+h4sP7osmKKtkNDVi)
