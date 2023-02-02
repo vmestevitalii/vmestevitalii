@@ -1,7 +1,7 @@
 
 # Вместе в Италии
 
-![logo](https://avatars.githubusercontent.com/u/123323048?s=200&v=4)
+![logo](/vmestevitalii_logo1.jpg)
 
 
 ## Сводный кодекс правил для новичков
